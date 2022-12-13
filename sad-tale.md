@@ -7,3 +7,5 @@ happily ever after...  He definitely didn't get axe murdered.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to
 begin, and let me assure you he will ___DEFINITELY NOT DIE!___
+
+While Joffrey may not have died he certainly didn't live a decent life whatsoever. It was full of gout and other unfortunate ailments. Heart burn, back pain, and sleep issues plagued him on a daily basis. 
